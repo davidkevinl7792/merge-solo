@@ -2,4 +2,4 @@ I
 am
 tired
 of
-hw
+classwork
