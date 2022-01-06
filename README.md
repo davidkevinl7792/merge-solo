@@ -1,5 +1,5 @@
 you
 am
-tired
+not tired
 of
 classwork
